@@ -1,2 +1,3 @@
 this is the mod noodle readme file
-I am a pirate
+I am awesome!!! :D :D
+
